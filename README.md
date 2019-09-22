@@ -1,4 +1,1 @@
 # ankush
-ffnnnd
-bkskkg
-shkjet 
